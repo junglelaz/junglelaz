@@ -2,7 +2,7 @@
 
 **Creative Director · Product Designer · Creative Technologist · Music Artist & Producer**
 
-I connect brand, product and technology to create digital experiences. My work spans creative direction, UX/UI, immersive websites and tools for musicians, bringing visual storytelling and practical product thinking into the same process.
+I connect brand, product and technology to create digital experiences. My work spans creative direction, UX/UI, immersive websites, tools to empower musicians, sound design and music production, bringing audiovisual storytelling and practical product thinking into the same process.
 
 [Portfolio at LZLO](https://lzlo.org/) · [The Mantrium](https://mantrium.io/themantrium/) · [3PM](https://3pm.to/) · [Music at Jungle Laz](https://junglelaz.net/) 
 
