@@ -1,6 +1,6 @@
-# Laszlo van Leeuwen
+# Laszlo Van Leeuwen
 
-**Creative Director · Product Designer · Creative Technologist**
+**Creative Director · Product Designer · Creative Technologist · Music Artist & Producer**
 
 I connect brand, product and technology to create digital experiences. My work spans creative direction, UX/UI, immersive websites and tools for musicians, bringing visual storytelling and practical product thinking into the same process.
 
